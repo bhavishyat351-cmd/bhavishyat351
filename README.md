@@ -31,7 +31,6 @@
 
 ## Find me
 [LinkedIn]( https://www.linkedin.com/in/bhavishya-thakur-33148b42a?utm_source=share_via&utm_content=profile&utm_medium=member_android ) 
-· [Upwork]() 
-· [Fiverrl() 
+·[X]( https://x.com/BhavishyaTT ) 
 
 *"Risk managed. Code shipped. Always learning."*
